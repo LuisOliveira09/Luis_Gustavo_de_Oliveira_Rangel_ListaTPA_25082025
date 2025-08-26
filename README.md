@@ -1,0 +1,1 @@
+# Luis_Gustavo_de_Oliveira_Rangel_ListaTPA_25082025
